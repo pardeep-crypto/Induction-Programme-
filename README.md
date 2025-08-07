@@ -3,7 +3,7 @@
 # Day 1
 ## 30th Of July 
 ## Visiting Gurdwara Sahib 🛕🪯
-Today marked **Day 1** of the Induction Program, where all students gathered in the **Gurdwara Sahib ** that are situatedin the college. Along with the students all teaching staff also coming in Gurdwara Sahib.In Gurdwara Sahib Granthi doing Ardaas for all the for their upcoming time.
+Today marked **Day 1** of the Induction Program, where all students gathered in the **Gurdwara Sahib ** that are situatedin the college. Along with the students all teaching staff also coming in Gurdwara Sahib.In Gurdwara Sahib Granthi ji  doing Ardaas for all the  students for their upcoming time.
 
 ![1754575733718222908330996454927](https://github.com/user-attachments/assets/9c1c2fde-73fe-42a7-9819-b07ab03fa072)
 
@@ -46,3 +46,4 @@ She has well **communication skill** . She taught us about moral values and how 
 
 He is Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust,inspiring students with his words on discipline,purpose,and the founding vision of college.He talked with us about the importance of communication skills.He asked that if you have knowledge of communication skills you can easily solve any problem.He also share his some life stories with us. He give some tips to improve communication skills.This type of lecture are very importance for students.I personally liked that's session very much.After session our Principal sir and Mrs. Harpreet Kaur Grewal(HOD : applied science) Hounours Grewal sir with a Award.
 
+![1754585833320576952680578783983](https://github.com/user-attachments/assets/f536f927-9669-4a9e-8289-12edf3fc1651)
