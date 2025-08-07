@@ -56,6 +56,14 @@ He is Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust,in
  ![17545880023343728930044530535187](https://github.com/user-attachments/assets/3c127d2e-db79-41b2-8c71-bfad2988192d)
 
 ### 🟦Dr.Arvind Dhingra(Director-STEP & Incharge TAC)
-   After Priya Mam Lecture,Dr.Arvind Sir come on the stage.Sir taught about the right understanding between the two   persons.He taught that if understanding b/w two is good than their bond make stronger with that person than any other person.He also give advise on interaction with others.Apart of study,He plays a number of games with students.Arvind sir lecture also very importance and interesting.After This lecture  Principal sir and HOD Mam honours Arvind sir.
+   After Priya Mam Lecture,Dr.Arvind Sir come on the stage.Sir taught about the right understanding between the two   persons.He taught that if understanding b/w two is good than their bond make stronger with that person than any other person.He also give advise on interaction with others.Apart of study,He plays a number of games with students.Arvind sir lecture also very important  and interesting.After This lecture  Principal sir and HOD Mam honours Arvind sir.
 
    ![17545892787039162147635647046612](https://github.com/user-attachments/assets/add9190d-5e3f-45b5-a2af-90ee87b446f4)
+
+### 🟨Proficiency Test
+After Arvind sir lecture,There is Proficiency Test for us. Basically this test is conducted by our teachers and seniors.There is two subjects in this test first is English and second is Maths .The test of English is Easy but test of maths is medium type.
+
+![17545900587246600179762133067437](https://github.com/user-attachments/assets/3f740cce-2119-4e8e-b5aa-701204aa5eb3)
+
+
+After This Test Our Day 2 Is End.🔚
