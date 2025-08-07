@@ -4,8 +4,34 @@
 ## 30th Of July 
 ## Visiting Gurdwara Sahib 🛕🪯
 ###Today marked **Day 1** of the Induction Program, where all students gathered in the **Gurdwara Sahib ** that are situatedin the college. Along with the students all teaching staff also coming in Gurdwara Sahib.In Gurdwara Sahib Granthi doing Ardaas for all the for their upcoming time and bright future.
-   https://drive.google.com/file/d/17yO-Kqi7mHt2W2_DYsdiWh4-pvfdUkZy/view?usp=drivesdk
+   ###https://drive.google.com/file/d/17yO-Kqi7mHt2W2_DYsdiWh4-pvfdUkZy/view?usp=drivesdk
 
 ## Tea And Snackes☕️🍪
  ###After the Ardass at Gurdwara Sahib ,the arrangements of tea and snacks are ready for us.The venue of tea and snacks is Hostel No 2 of Boys. The arrangements of tea and snacks is very good.I personally liked that's arrangements.
- https://drive.google.com/file/d/187SIKXx_QMHyF6bswUVtnMqFMgu8lFYx/view?usp=drivesdk
+ ###https://drive.google.com/file/d/187SIKXx_QMHyF6bswUVtnMqFMgu8lFYx/view?usp=drivesdk
+
+ ## Inaugural Ceremony At Auditorium🏫
+ ### After Tea And Snackes, We are going in college Auditorium for our inaugural Ceremony.__
+ ## 🔶Program Host: Tranumreet Kaur
+
+The program began with **Tranumreet Kaur**, who took the stage with **confidence and grace**. She has a ability of well speaking and encourage the student to listen program well And her natural ability to **connect instantly with students**.
+
+Tranumreet's presence added charm to the event, and her anchoring played a major role in making the session engaging and successful.
+###https://drive.google.com/file/d/18EnT0hXBpUYExW0qKJhtAF1u-NxjLXIU/view?usp=drivesdk
+###(https://drive.google.com/file/d/18Ew-5Jo9Ogap5BEZqeZJUeGIM-Rd2Y1G/view?usp=drivesdk)
+
+---
+
+## 👨‍🏫 Mr. Sehaj Pal Singh (Principal)
+
+Our respected Principal, **Mr. Sehaj Pal Singh**, played a **crucial role** in the successful execution of the day's program. His **inspiring words** motivated the students and encouraged them to approach this new journey with positivity and confidence.
+
+He personally **welcomed and honoured the chief guest**, ensuring a warm and respectful environment for everyone involved.
+Sir has always led the institution with **dedication, discipline, and vision**, and his involvement in events like this reflects the **strong leadership and foundational values** he brings to our college.
+
+![Principal Sir](https://drive.google.com/uc?export=view&id=1W6Tb_8CIgulA92Dx2UePvSRvialW228_)
+
+## Mrs. Harpreet Kaur Grewal(HOD : applied science)
+
+She has well **communication skill** . She taught us about moral values and how to deal with people or students of different branches . She told us to do well in college ,make our life discipline, well managed to do better in aacdemic. 
+<img width="1204" height="916" alt="image" src="https://github.com/user-attachments/assets/b7a2cbcd-e3d6-4c1c-93c9-6ae97c4c0ef8" />
