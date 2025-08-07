@@ -10,7 +10,9 @@
 
 ## Tea And Snackes☕️🍪
  ###After the Ardass at Gurdwara Sahib ,the arrangements of tea and snacks are ready for us.The venue of tea and snacks is Hostel No 2 of Boys. The arrangements of tea and snacks is very good.I personally liked that's arrangements.
- ### https://drive.google.com/file/d/187SIKXx_QMHyF6bswUVtnMqFMgu8lFYx/view?usp=drivesdk
+
+![17545760573667414886134756482703](https://github.com/user-attachments/assets/de4ebeab-9923-43a1-9a7c-0d27aa1893f8)
+
 
  ## Inaugural Ceremony At Auditorium🏫
  ### After Tea And Snackes, We are going in college Auditorium for our inaugural Ceremony.__
