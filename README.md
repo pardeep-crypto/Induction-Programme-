@@ -40,3 +40,9 @@ Sir has always led the institution with **dedication, discipline, and vision**, 
 
 She has well **communication skill** . She taught us about moral values and how to deal with people or students of different branches . She told us to do well in college ,make our life discipline, well managed to do better in aacdemic. 
 <img width="1204" height="916" alt="image" src="https://github.com/user-attachments/assets/b7a2cbcd-e3d6-4c1c-93c9-6ae97c4c0ef8" />
+
+## 🌟S. Maheshinder Singh Grewal(Chief Guest)
+
+
+He is Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust,inspiring students with his words on discipline,purpose,and the founding vision of college.He talked with us about the importance of communication skills.He asked that if you have knowledge of communication skills you can easily solve any problem.He also share his some life stories with us. He give some tips to improve communication skills.This type of lecture are very importance for students.I personally liked that's session very much.After session our Principal sir and Mrs. Harpreet Kaur Grewal(HOD : applied science) Hounours Grewal sir with a Award.
+
