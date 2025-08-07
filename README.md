@@ -36,7 +36,7 @@ Sir has always led the institution with **dedication, discipline, and vision**, 
 
 ![Principal Sir](https://drive.google.com/uc?export=view&id=1W6Tb_8CIgulA92Dx2UePvSRvialW228_)
 
-## Mrs. Harpreet Kaur Grewal(HOD : applied science)
+## 👩‍🏫Mrs. Harpreet Kaur Grewal(HOD : applied science)
 
 She has well **communication skill** . She taught us about moral values and how to deal with people or students of different branches . She told us to do well in college ,make our life discipline, well managed to do better in aacdemic. 
 <img width="1204" height="916" alt="image" src="https://github.com/user-attachments/assets/b7a2cbcd-e3d6-4c1c-93c9-6ae97c4c0ef8" />
@@ -47,3 +47,10 @@ She has well **communication skill** . She taught us about moral values and how 
 He is Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust,inspiring students with his words on discipline,purpose,and the founding vision of college.He talked with us about the importance of communication skills.He asked that if you have knowledge of communication skills you can easily solve any problem.He also share his some life stories with us. He give some tips to improve communication skills.This type of lecture are very importance for students.I personally liked that's session very much.After session our Principal sir and Mrs. Harpreet Kaur Grewal(HOD : applied science) Hounours Grewal sir.
 
 ![1754585833320576952680578783983](https://github.com/user-attachments/assets/f536f927-9669-4a9e-8289-12edf3fc1651)
+
+# Day 2 
+## 1th of Augest
+### 🟥Dr.Priya Darsni(PhD Electronic Engg)
+ At the starting of induction program day 2 Dr.Priya Darsni Mam Give us a lecture on Human Values.Apart Of her PhD she is also teach expert in teaching Universal Human Values.He teachs this Human values free of Cost.Firstly Mam teach us about mutal understanding between two persons. After this she also teach us about real happiness in humans.She teach us that physical things cannot buy our happiness.Oue happiness buy by mutual understanding and right relationship. She also clear the difference between excitement and happiness.Her lecture made my  day.I hope that time by time she comes and teach us that type of things.
+
+ ![17545880023343728930044530535187](https://github.com/user-attachments/assets/3c127d2e-db79-41b2-8c71-bfad2988192d)
