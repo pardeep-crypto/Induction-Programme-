@@ -8,7 +8,7 @@
 
 ## Tea And Snackes☕️🍪
  ###After the Ardass at Gurdwara Sahib ,the arrangements of tea and snacks are ready for us.The venue of tea and snacks is Hostel No 2 of Boys. The arrangements of tea and snacks is very good.I personally liked that's arrangements.
- ###https://drive.google.com/file/d/187SIKXx_QMHyF6bswUVtnMqFMgu8lFYx/view?usp=drivesdk
+ ### https://drive.google.com/file/d/187SIKXx_QMHyF6bswUVtnMqFMgu8lFYx/view?usp=drivesdk
 
  ## Inaugural Ceremony At Auditorium🏫
  ### After Tea And Snackes, We are going in college Auditorium for our inaugural Ceremony.__
@@ -17,8 +17,8 @@
 The program began with **Tranumreet Kaur**, who took the stage with **confidence and grace**. She has a ability of well speaking and encourage the student to listen program well And her natural ability to **connect instantly with students**.
 
 Tranumreet's presence added charm to the event, and her anchoring played a major role in making the session engaging and successful.
-###https://drive.google.com/file/d/18EnT0hXBpUYExW0qKJhtAF1u-NxjLXIU/view?usp=drivesdk
-###(https://drive.google.com/file/d/18Ew-5Jo9Ogap5BEZqeZJUeGIM-Rd2Y1G/view?usp=drivesdk)
+### https://drive.google.com/file/d/18EnT0hXBpUYExW0qKJhtAF1u-NxjLXIU/view?usp=drivesdk
+### https://drive.google.com/file/d/18Ew-5Jo9Ogap5BEZqeZJUeGIM-Rd2Y1G/view?usp=drivesdk)
 
 ---
 
