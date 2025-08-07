@@ -3,26 +3,27 @@
 # Day 1
 ## 30th Of July 
 ## Visiting Gurdwara Sahib 🛕🪯
-###Today marked **Day 1** of the Induction Program, where all students gathered in the **Gurdwara Sahib ** that are situatedin the college. Along with the students all teaching staff also coming in Gurdwara Sahib.In Gurdwara Sahib Granthi doing Ardaas for all the for their upcoming time.
+Today marked **Day 1** of the Induction Program, where all students gathered in the **Gurdwara Sahib ** that are situatedin the college. Along with the students all teaching staff also coming in Gurdwara Sahib.In Gurdwara Sahib Granthi doing Ardaas for all the for their upcoming time.
 
 ![1754575733718222908330996454927](https://github.com/user-attachments/assets/9c1c2fde-73fe-42a7-9819-b07ab03fa072)
 
 
 ## Tea And Snackes☕️🍪
- ###After the Ardass at Gurdwara Sahib ,the arrangements of tea and snacks are ready for us.The venue of tea and snacks is Hostel No 2 of Boys. The arrangements of tea and snacks is very good.I personally liked that's arrangements.
+After the Ardass at Gurdwara Sahib ,the arrangements of tea and snacks are ready for us.The venue of tea and snacks is Hostel No 2 of Boys. The arrangements of tea and snacks is very good.I personally liked that's arrangements.
 
 ![17545760573667414886134756482703](https://github.com/user-attachments/assets/de4ebeab-9923-43a1-9a7c-0d27aa1893f8)
 
 
  ## Inaugural Ceremony At Auditorium🏫
- ### After Tea And Snackes, We are going in college Auditorium for our inaugural Ceremony.__
+  ### After Tea And Snackes, We are going in college Auditorium for our inaugural Ceremony.__
  ## 🔶Program Host: Tranumreet Kaur
 
 The program began with **Tranumreet Kaur**, who took the stage with **confidence and grace**. She has a ability of well speaking and encourage the student to listen program well And her natural ability to **connect instantly with students**.
 
 Tranumreet's presence added charm to the event, and her anchoring played a major role in making the session engaging and successful.
-### https://drive.google.com/file/d/18EnT0hXBpUYExW0qKJhtAF1u-NxjLXIU/view?usp=drivesdk
-### https://drive.google.com/file/d/18Ew-5Jo9Ogap5BEZqeZJUeGIM-Rd2Y1G/view?usp=drivesdk)
+
+![17545764146607325707363314142099](https://github.com/user-attachments/assets/0d1475d7-8316-43a6-84c8-936756b0aea1)
+
 
 ---
 
