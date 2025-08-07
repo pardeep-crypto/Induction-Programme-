@@ -3,7 +3,8 @@
 # Day 1
 ## 30th Of July 
 ## Visiting Gurdwara Sahib 🛕🪯
-###Today marked **Day 1** of the Induction Program, where all students gathered in the **Gurdwara Sahib ** that are situatedin the college. Along with the students all teaching staff also coming in Gurdwara Sahib.In Gurdwara Sahib Granthi doing Ardaas for all the for their upcoming time 
+###Today marked **Day 1** of the Induction Program, where all students gathered in the **Gurdwara Sahib ** that are situatedin the college. Along with the students all teaching staff also coming in Gurdwara Sahib.In Gurdwara Sahib Granthi doing Ardaas for all the for their upcoming time.
+
 ![1754575733718222908330996454927](https://github.com/user-attachments/assets/9c1c2fde-73fe-42a7-9819-b07ab03fa072)
 
 
