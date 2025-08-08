@@ -130,3 +130,9 @@ At the starting of Day 4 Mr.Gautam Maurria starting a lecture named as **Motor S
 
 ![17546561567241463481087242690778](https://github.com/user-attachments/assets/7c8e3e75-3032-4db4-9e51-326dfd4d97cd)![17546561958051268869876007648585](https://github.com/user-attachments/assets/9fd103b9-dea6-4906-add4-4fac5a596f69)
 
+### Millets Super Food (Mr.s Shaffy Makkar)
+After the session of sir,Mrs.shaffy makkar comes and talk the about Millets Super food with us. Mam describe the importance of Millets in our life.Mam inform us that if we eat Millets instead of wheat and rice then diseases like cancer , sugar etc never developing in our body.
+
+ Mam also gives the information that how to eat Millets in a proper way.Acc to Mam , we need to eat a single Millet atleast three days regular.Mam also explain different types of Millets and their benefits. All students like Mam's  session and I thanks Mrs. shaffy mam for this wonderful session.I hope Mam comes time by time in future for this type of interested and important lecture.
+
+ ![1754660746088488407438953629949](https://github.com/user-attachments/assets/1d633252-1323-46ae-925d-8e1bda15f8b1)
