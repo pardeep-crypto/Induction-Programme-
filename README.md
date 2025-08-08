@@ -54,6 +54,8 @@ He is Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust,in
 
 # Day 2 
 ## 1th of Augest
+## Just like **Day 1**, today we all gathered again at the **Auditorium Hall**. The session was once again confidently started by **Tranumpreet Kaur**, who took charge of hosting **Induction Day 2** with great enthusiasm.
+
 ### 🟥Dr.Priya Darsni(PhD Electronic Engg)
  At the starting of induction program day 2 Dr.Priya Darsni Mam Give us a lecture on Human Values.Apart Of her PhD she is also  expert in teaching Universal Human Values.He teachs  Human values free of Cost.Firstly Mam teach us about mutal understanding between two persons. After this she also teach us about real happiness in humans.She teach us that physical things cannot buy our happiness.Oue happiness buy by mutual understanding and right relationship. She also clear the difference between excitement and happiness.Her lecture made my  day.I hope that time by time she comes and teach us that type of things.
 
