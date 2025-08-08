@@ -104,3 +104,6 @@ She give us an example that if someone don't pick your phone then you should thi
 
 
 
+## 🏆 Scholarship Session
+One of the key highlights of the day was an informative session by members of a **Scholarship Community**. They introduced us to the **Satyam Scholarship Scheme**, which is a great opportunity for students from financially weaker backgrounds. All the students listened attentively, showing great interest and discipline.
+<img width="333" height="151" alt="image" src="https://github.com/user-attachments/assets/5dc4b80d-2d7d-446b-ab71-eb097e9ef60b" />
