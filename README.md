@@ -94,7 +94,10 @@ In the starting of induction program day 3, Tranumreet Kaur and her  mates talk 
 
 ### 🟪Universal Human Values (Dr. Priya Darsni)
 As we talk about her in day 2 , Mam came again to talk about moral values of human life .
-Now she used to tell us about how to understand yourself, what is the real happiness in human's life. She tell us that we should have a inner peace to our body calm , with this we can achieve our goals easily. She give us an example that if someone don't pick your phone then you should think that he or she is in something important work not by abusing him for this. At last we thanks her for this important speech with that we can do many more in our life.
+Now she used to tell us about how to understand yourself, what is the real happiness in human's life. She tell us that we should have a inner peace to our body calm , with this we can achieve our goals easily.
+
+
+She give us an example that if someone don't pick your phone then you should think that he or she is in something important work not by abusing him for this. At last we thanks her for this important speech with that we can do many more in our life.
 
 
 ![17546267525369215495148464170598](https://github.com/user-attachments/assets/d57eaa54-b816-4158-8311-d6b9445a8f2e)
