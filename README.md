@@ -89,4 +89,15 @@ After Arvind sir lecture,There is Proficiency Test for us. Basically this test i
 
 ### 🟩Causmic Club
 In the starting of induction program day 3, Tranumreet Kaur and her  mates talk about  Causmic Club .The Causmic club designed by our seniors. It was designed to conduct various ** conserts, program and festivals **.They introduced us about * ACME and APEX *.They told freshers that you should also join them. They show us some glimpses of their previous work.They have their own website named ** https://causmic.gndec.ac.in/ **. All students enjoy their talk about Causmic Club.
+
 ![17546256433233042345469602198124](https://github.com/user-attachments/assets/7ae50a6f-9b09-4774-a3d8-529fc89d58c8)
+
+### 🟪Universal Human Values (Dr. Priya Darsni)
+As we talk about her in day 2 , Mam came again to talk about moral values of human life .
+Now she used to tell us about how to understand yourself, what is the real happiness in human's life. She tell us that we should have a inner peace to our body calm , with this we can achieve our goals easily. She give us an example that if someone don't pick your phone then you should think that he or she is in something important work not by abusing him for this. At last we thanks her for this important speech with that we can do many more in our life.
+
+
+![17546267525369215495148464170598](https://github.com/user-attachments/assets/d57eaa54-b816-4158-8311-d6b9445a8f2e)
+
+
+
