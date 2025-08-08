@@ -1,7 +1,7 @@
 # Induction Programe
 # Pardeep Singh(Mechanical Engineering)
 # Day 1
-## 30th Of July 
+## July 30,2025
 ## Visiting Gurdwara Sahib 🛕🪯
 Today marked **Day 1** of the Induction Program, where all students gathered in the **Gurdwara Sahib ** that are situatedin the college. Along with the students all teaching staff also coming in Gurdwara Sahib.In Gurdwara Sahib Granthi ji  doing Ardaas for all the  students for their upcoming time.
 
@@ -56,7 +56,7 @@ This type of lecture are very importance for students.I personally liked that's 
 
 
 # Day 2 
-## 1th of Augest
+## Augest 1,2025
 ### ⏭️Just like **Day 1**, today we all gathered again at the **Auditorium Hall**. The session was once again confidently started by **Tranumpreet Kaur**, who took charge of hosting **Induction Day 2** with great enthusiasm.
 
 ### 🟥Dr.Priya Darsni(PhD Electronic Engg)
@@ -82,3 +82,11 @@ After Arvind sir lecture,There is Proficiency Test for us. Basically this test i
 
 
 ⚪️After This Test Our Day 2 Of Induction Programe Is End.🔚
+
+# Day 3
+## Augest 4,2025
+### As we go through Day 1 or Day 2 of induction program,Day 3 is similar like that.This some students introduce us about causmic club and Mam give a speech to understand ourself.
+
+### 🟩Causmic Club
+In the starting of induction program day 3, Tranumreet Kaur and her  mates talk about  Causmic Club .The Causmic club designed by our seniors. It was designed to conduct various ** conserts, program and festivals **.They introduced us about * ACME and APEX *.They told freshers that you should also join them. They show us some glimpses of their previous work.They have their own website named ** https://causmic.gndec.ac.in/ **. All students enjoy their talk about Causmic Club.
+![17546256433233042345469602198124](https://github.com/user-attachments/assets/7ae50a6f-9b09-4774-a3d8-529fc89d58c8)
