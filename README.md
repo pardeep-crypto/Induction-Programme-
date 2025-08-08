@@ -126,5 +126,8 @@ At the end of the program, our **senior students** introduced us to **GitHub** a
 
 ### Motor Sports (Mr.Gautam Maurria)
 
-At the starting of Day 4 Mr.Gautam Maurria starting a lecture named as **Motor Sports**.In this lecture sir give us information about Motor  cars like Formula Racing Cars, which is different from our normal cars.Sir Basically explain us why  this cars has different shapes,tyres,interior part than other cars.Sir also explain the role of mechanical engineer in Motor sports
+At the starting of Day 4 Mr.Gautam Maurria starting a lecture named as **Motor Sports**.In this lecture sir give us information about Motor  cars like Formula Racing Cars, which is different from our normal cars.Sir Basically explain us why  this cars has different shapes,tyres,interior part than other cars.Sir also explain the role of mechanical engineer in Motor sports.The Duration of sir's lecture would be only 1-2 hours.At last we thanks sir for this important lecture.
+
+![17546561567241463481087242690778](https://github.com/user-attachments/assets/7c8e3e75-3032-4db4-9e51-326dfd4d97cd)
+![17546561958051268869876007648585](https://github.com/user-attachments/assets/9fd103b9-dea6-4906-add4-4fac5a596f69)
 
