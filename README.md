@@ -85,7 +85,7 @@ After Arvind sir lecture,There is Proficiency Test for us. Basically this test i
 
 # Day 3
 ## Augest 4,2025
-### As we go through Day 1 or Day 2 of induction program,Day 3 is similar like that.This some students introduce us about causmic club and Mam give a speech to understand ourself.
+### 🔀 As we go through Day 1 or Day 2 of induction program,Day 3 is similar like that.This some students introduce us about causmic club and Mam give a speech to understand ourself.
 
 ### 🟩Causmic Club
 In the starting of induction program day 3, Tranumreet Kaur and her  mates talk about  Causmic Club .The Causmic club designed by our seniors. It was designed to conduct various ** conserts, program and festivals **.They introduced us about * ACME and APEX *.They told freshers that you should also join them. They show us some glimpses of their previous work.They have their own website named ** https://causmic.gndec.ac.in/ **. All students enjoy their talk about Causmic Club.
@@ -115,3 +115,5 @@ At the end of the program, our **senior students** introduced us to **GitHub** a
 
 ![17546276717711877408480559243059](https://github.com/user-attachments/assets/6a95ff15-ea35-422a-a34e-48a8084aa125)
 
+
+⚪️ With This Day 3 Of Induction Programe Ended.🔚
