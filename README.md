@@ -48,7 +48,7 @@ He is Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust,in
 
 ![1754585833320576952680578783983](https://github.com/user-attachments/assets/f536f927-9669-4a9e-8289-12edf3fc1651)
 
-After This Our Day 1 Of Induction Programe Is End 🔚.
+⚪️After This Our Day 1 Of Induction Programe Is End 🔚.
 
 
 # Day 2 
@@ -67,6 +67,6 @@ After This Our Day 1 Of Induction Programe Is End 🔚.
 After Arvind sir lecture,There is Proficiency Test for us. Basically this test is conducted by our teachers and seniors.There is two subjects in this test first is English and second is Maths .The test of English is Easy but test of maths is medium type.
 
 ![17545900587246600179762133067437](https://github.com/user-attachments/assets/3f740cce-2119-4e8e-b5aa-701204aa5eb3)
-https://www.instagram.com/p/DM8A64xTzCZ/?img_index=3&igsh=MXNucjYzeml6cTcwZg==
 
-After This Test Our Day 2 Of Induction Programe Is End.🔚
+
+⚪️After This Test Our Day 2 Of Induction Programe Is End.🔚
