@@ -44,7 +44,9 @@ She has well **communication skill** . She taught us about moral values and how 
 ## 🌟S. Maheshinder Singh Grewal(Chief Guest)
 
 
-He is Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust,inspiring students with his words on discipline,purpose,and the founding vision of college.He talked with us about the importance of communication skills.He asked that if you have knowledge of communication skills you can easily solve any problem.He also share his some life stories with us. He give some tips to improve communication skills.
+He is Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust,inspiring students with his words on discipline,purpose,and the founding vision of college.He talked with us about the importance of communication skills.He asked that if you have knowledge of communication skills you can easily solve any problem.He also share his some life stories with us. He give some tips to improve communication skills.                                          
+
+
 This type of lecture are very importance for students.I personally liked that's session very much.After session our Principal sir and Mrs. Harpreet Kaur Grewal(HOD : applied science) Hounours Grewal Sir.
 
 ![1754618392691588350046434084466](https://github.com/user-attachments/assets/1638bc2d-5cf2-4434-bdd8-01245f6a50cb)
