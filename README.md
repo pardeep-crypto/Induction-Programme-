@@ -44,7 +44,8 @@ She has well **communication skill** . She taught us about moral values and how 
 ## 🌟S. Maheshinder Singh Grewal(Chief Guest)
 
 
-He is Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust,inspiring students with his words on discipline,purpose,and the founding vision of college.He talked with us about the importance of communication skills.He asked that if you have knowledge of communication skills you can easily solve any problem.He also share his some life stories with us. He give some tips to improve communication skills.This type of lecture are very importance for students.I personally liked that's session very much.After session our Principal sir and Mrs. Harpreet Kaur Grewal(HOD : applied science) Hounours Grewal Sir.
+He is Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust,inspiring students with his words on discipline,purpose,and the founding vision of college.He talked with us about the importance of communication skills.He asked that if you have knowledge of communication skills you can easily solve any problem.He also share his some life stories with us. He give some tips to improve communication skills.
+This type of lecture are very importance for students.I personally liked that's session very much.After session our Principal sir and Mrs. Harpreet Kaur Grewal(HOD : applied science) Hounours Grewal Sir.
 
 ![1754618392691588350046434084466](https://github.com/user-attachments/assets/1638bc2d-5cf2-4434-bdd8-01245f6a50cb)
 
@@ -54,15 +55,17 @@ He is Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust,in
 
 # Day 2 
 ## 1th of Augest
-## Just like **Day 1**, today we all gathered again at the **Auditorium Hall**. The session was once again confidently started by **Tranumpreet Kaur**, who took charge of hosting **Induction Day 2** with great enthusiasm.
+### Just like **Day 1**, today we all gathered again at the **Auditorium Hall**. The session was once again confidently started by **Tranumpreet Kaur**, who took charge of hosting **Induction Day 2** with great enthusiasm.
 
 ### 🟥Dr.Priya Darsni(PhD Electronic Engg)
- At the starting of induction program day 2 Dr.Priya Darsni Mam Give us a lecture on Human Values.Apart Of her PhD she is also  expert in teaching Universal Human Values.He teachs  Human values free of Cost.Firstly Mam teach us about mutal understanding between two persons. After this she also teach us about real happiness in humans.She teach us that physical things cannot buy our happiness.Oue happiness buy by mutual understanding and right relationship. She also clear the difference between excitement and happiness.Her lecture made my  day.I hope that time by time she comes and teach us that type of things.
+ At the starting of induction program day 2 Dr.Priya Darsni Mam Give us a lecture on Human Values.Apart Of her PhD she is also  expert in teaching Universal Human Values.He teachs  Human values free of Cost.
+ Firstly Mam teach us about mutal understanding between two persons. After this she also teach us about real happiness in humans.She teach us that physical things cannot buy our happiness.Oue happiness buy by mutual understanding and right relationship. She also clear the difference between excitement and happiness.Her lecture made my  day.I hope that time by time she comes and teach us that type of things.
 
  ![17545880023343728930044530535187](https://github.com/user-attachments/assets/3c127d2e-db79-41b2-8c71-bfad2988192d)
 
 ### 🟦Dr.Arvind Dhingra(Director-STEP & Incharge TAC)
-   After Priya Mam Lecture,Dr.Arvind Sir come on the stage.Sir taught about the right understanding between the two   persons.He taught that if understanding b/w two is good than their bond make stronger with that person than any other person.He also give advise on interaction with others.Apart of study,He plays a number of games with students.Arvind sir lecture also very important  and interesting.After This lecture  Principal sir and HOD Mam honours Arvind sir.
+   After Priya Mam Lecture,Dr.Arvind Sir come on the stage.Sir taught about the right understanding between the two   persons.He taught that if understanding b/w two is good than their bond make stronger with that person than any other person.He also give advise on interaction with others.
+   Apart of study,He plays a number of games with students.Arvind sir lecture also very important  and interesting.After This lecture  Principal sir and HOD Mam honours Arvind sir.
 
    ![17545892787039162147635647046612](https://github.com/user-attachments/assets/add9190d-5e3f-45b5-a2af-90ee87b446f4)
 
