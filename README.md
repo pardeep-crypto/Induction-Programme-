@@ -92,6 +92,8 @@ In the starting of induction program day 3, Tranumreet Kaur and her  mates talk 
 
 ![17546256433233042345469602198124](https://github.com/user-attachments/assets/7ae50a6f-9b09-4774-a3d8-529fc89d58c8)
 
+![17546275935955599231697918842047](https://github.com/user-attachments/assets/b594b2b7-b34a-4590-8a9c-9f3a7d7638c3)
+
 ### 🟪Universal Human Values (Dr. Priya Darsni)
 As we talk about her in day 2 , Mam came again to talk about moral values of human life .
 Now she used to tell us about how to understand yourself, what is the real happiness in human's life. She tell us that we should have a inner peace to our body calm , with this we can achieve our goals easily.
@@ -109,3 +111,9 @@ One of the key highlights of the day was an informative session by members of a 
 
 
 <img width="333" height="151" alt="image" src="https://github.com/user-attachments/assets/5dc4b80d-2d7d-446b-ab71-eb097e9ef60b" />
+
+## 👨‍💻 GitHub Introduction by Seniors
+At the end of the program, our **senior students** introduced us to **GitHub** and guided us on how to document our experiences and learnings from the induction program.
+
+![17546276717711877408480559243059](https://github.com/user-attachments/assets/6a95ff15-ea35-422a-a34e-48a8084aa125)
+
