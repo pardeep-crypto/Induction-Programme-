@@ -67,8 +67,16 @@ This type of lecture are very importance for students.I personally liked that's 
 
  ![17545880023343728930044530535187](https://github.com/user-attachments/assets/3c127d2e-db79-41b2-8c71-bfad2988192d)
 
+
+## 🏆 Scholarship Session
+One of the key highlights of the day was an informative session by members of a **Scholarship Community**. They introduced us to the **Satyam Scholarship Scheme**, which is a great opportunity for students from financially weaker backgrounds. All the students listened attentively, showing great interest and discipline.
+
+
+<img width="333" height="151" alt="image" src="https://github.com/user-attachments/assets/5dc4b80d-2d7d-446b-ab71-eb097e9ef60b" />
+
+
 ### 🟦Dr.Arvind Dhingra(Director-STEP & Incharge TAC)
-   After Priya Mam Lecture,Dr.Arvind Sir come on the stage.Sir taught about the right understanding between the two   persons.He taught that if understanding b/w two is good than their bond make stronger with that person than any other person.He also give advise on interaction with others.
+   After scholarship session,Dr.Arvind Sir come on the stage.Sir taught about the right understanding between the two   persons.He taught that if understanding b/w two is good than their bond make stronger with that person than any other person.He also give advise on interaction with others.
 
    
    Apart of study,He plays a number of games with students.Arvind sir lecture also very important  and interesting.After This lecture  Principal sir and HOD Mam honours Arvind sir.
@@ -103,12 +111,6 @@ She give us an example that if someone don't pick your phone then you should thi
 ![17546267525369215495148464170598](https://github.com/user-attachments/assets/d57eaa54-b816-4158-8311-d6b9445a8f2e)
 
 
-
-## 🏆 Scholarship Session
-One of the key highlights of the day was an informative session by members of a **Scholarship Community**. They introduced us to the **Satyam Scholarship Scheme**, which is a great opportunity for students from financially weaker backgrounds. All the students listened attentively, showing great interest and discipline.
-
-
-<img width="333" height="151" alt="image" src="https://github.com/user-attachments/assets/5dc4b80d-2d7d-446b-ab71-eb097e9ef60b" />
 
 ## 👨‍💻 GitHub Introduction by Seniors
 At the end of the program, our **senior students** introduced us to **GitHub** and guided us on how to document our experiences and learnings from the induction program.
