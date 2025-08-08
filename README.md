@@ -119,3 +119,12 @@ At the end of the program, our **senior students** introduced us to **GitHub** a
 
 
 ⚪️ With This Day 3 Of Induction Programe Will Be End Today .🔚
+
+# Day 4
+## Augest 5,2025
+### ⏯️As we go through 3 Day's  of induction program,Day 4 is similar like that.
+
+### Motor Sports (Mr.Gautam Maurria)
+
+At the starting of Day 4 Mr.Gautam Maurria starting a lecture named as **Motor Sports**.In this lecture sir give us information about Motor  cars like Formula Racing Cars, which is different from our normal cars.Sir Basically explain us why  this cars has different shapes,tyres,interior part than other cars.Sir also explain the role of mechanical engineer in Motor sports
+
