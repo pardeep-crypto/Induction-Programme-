@@ -124,13 +124,13 @@ At the end of the program, our **senior students** introduced us to **GitHub** a
 ## Augest 5,2025
 ### ⏯️As we go through 3 Day's  of induction program,Day 4 is similar like that.
 
-### Motor Sports (Mr.Gautam Maurria)
+### 🟧Motor Sports (Mr.Gautam Maurria)
 
 At the starting of Day 4 Mr.Gautam Maurria starting a lecture named as **Motor Sports**.In this lecture sir give us information about Motor  cars like Formula Racing Cars, which is different from our normal cars.Sir Basically explain us why  this cars has different shapes,tyres,interior part than other cars.Sir also explain the role of mechanical engineer in Motor sports.The Duration of sir's lecture would be only 1-2 hours.At last we thanks sir for this important lecture.
 
 ![17546561567241463481087242690778](https://github.com/user-attachments/assets/7c8e3e75-3032-4db4-9e51-326dfd4d97cd)![17546561958051268869876007648585](https://github.com/user-attachments/assets/9fd103b9-dea6-4906-add4-4fac5a596f69)
 
-### Millets Super Food (Mr.s Shaffy Makkar)
+### 🟫Millets Super Food (Mr.s Shaffy Makkar)
 After the session of sir,Mrs.shaffy makkar comes and talk the about Millets Super food with us. Mam describe the importance of Millets in our life.Mam inform us that if we eat Millets instead of wheat and rice then diseases like cancer , sugar etc never developing in our body.
 
  Mam also gives the information that how to eat Millets in a proper way.Acc to Mam , we need to eat a single Millet atleast three days regular.Mam also explain different types of Millets and their benefits. All students like Mam's  session and I thanks Mrs. shaffy mam for this wonderful session.I hope Mam comes time by time in future for this type of interested and important lecture.
@@ -138,3 +138,15 @@ After the session of sir,Mrs.shaffy makkar comes and talk the about Millets Supe
  ![1754660746088488407438953629949](https://github.com/user-attachments/assets/1d633252-1323-46ae-925d-8e1bda15f8b1)
 
 ⚪️ With This Day 4 Of Induction Programe Will Be Ended.🔚
+
+# Day 5
+## Augest 6,2025
+### ⏯️Day 5 is the last of our induction programe,As same As 5th Day is similar to previous day's.
+
+### 🟥Fitness For Engineers(Mr.Manpreet Singh)
+In the beginning  of this Mr. Manpreet Singh give us a lecture on Fitness. Firstly I Introduce Manpreet sir , Sir  is a  Body Buider by profession.Sir goes to many compitation and won a lot number of awards.Sir  is also sarpanch of his village.Sir opened his own gym in his village.
+
+Firstly he give suggestions to the students who go gym.He told him the basic exercises of gym. After that sir  gave advice to that who are not going to gym.Sir told that students the  exercises which are doing in grounds and rooms etc.Sir aware all the the students from different type of injection which are used for buid body.Sir also organised a push up compitation between the students.
+
+In manpreeet sir lecture i notice that the questions of students is too much. It's basically means that the students like sir's lecture very much.After sir lecture our Principal sir and HOD Mam honours Manpreet Sir.
+
