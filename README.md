@@ -136,3 +136,5 @@ After the session of sir,Mrs.shaffy makkar comes and talk the about Millets Supe
  Mam also gives the information that how to eat Millets in a proper way.Acc to Mam , we need to eat a single Millet atleast three days regular.Mam also explain different types of Millets and their benefits. All students like Mam's  session and I thanks Mrs. shaffy mam for this wonderful session.I hope Mam comes time by time in future for this type of interested and important lecture.
 
  ![1754660746088488407438953629949](https://github.com/user-attachments/assets/1d633252-1323-46ae-925d-8e1bda15f8b1)
+
+⚪️ With This Day 4 Of Induction Programe Will Be Ended.🔚
