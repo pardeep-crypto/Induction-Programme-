@@ -177,4 +177,7 @@ Jasvir Sir told us about the NSS and told the points that why we need to join NS
 After that sir playing some games with the student. At the end,Our seniors who are in NSS doing a drama infront of all students.After this the session is coming to end.I thanks Sir for this wonderful session.
 
 
-<img width="640" height="480" alt="17548222973172425414086547782753" src="https://github.com/user-attachments/assets/bde1e6cd-717e-4879-836b-7743109b8dbd" />
+<img width="540" height="360" alt="17548222973172425414086547782753" src="https://github.com/user-attachments/assets/bde1e6cd-717e-4879-836b-7743109b8dbd" />
+
+
+⚪️After this 5th and Last Day of induction program will be ended.🔚
