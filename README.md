@@ -159,13 +159,17 @@ After that Tanmay invite Brigadier *PS Cheema* Sir. We welcomed sir with powerfu
 ![17548125958083964641277329937487](https://github.com/user-attachments/assets/30d9f64c-f84f-405a-bf43-75ce43eb6fdd)
 
 ### 🟪Center For Multi-Faceted Learning(CML)
-After NCC session,Dr.Jasvir Singh Khana introduced CML to us. Basically Dr.Jasvir Sir is Incharge of CML.Acc to Jasvir sir basically CML is type of club which support hidden talent of students and improve community skills of students.In CML,sir and sir's team work on strength and weak points of students. Sir give a google form to the interested students for CML.
+After NCC session,Dr.Lakhvir Singh Khana introduced CML to us. Basically Dr.Lakhvir Sir is Incharge of CML.Acc to Lakhvir sir basically CML is type of club which support hidden talent of students and improve community skills of students.In CML,sir and sir's team work on strength and weak points of students. Sir give a google form to the interested students for CML.
 
 https://docs.google.com/forms/d/e/1FAIpQLSeo8mtSb10Z2xj68WTqEbAnw9Shj6V0z73BOSK024GTZMC9Kw/viewform
 
 
-After that jasvir sir told us about NPTEL(National Programme on Technology Enhanced Learning).Basically NPTEL is a site from where we do any course in our free time. There is a number of courses available on NPTEL and the duration of courses is different different acc to the courses. The teachers teach on this site are the IIT teachers .This site provide us certificate of the course that we do on this site.A exam is conducted by NPTEL of your course if you clear that exam you will get the certificate.Sir also shows how we apply for the courses on NPTEL. The offical site of NPTEL is that  **https://nptel.ac.in/** . After that sir ended his session. I thanks sir for this important and  wonderful lecture .
+After that Lakhir sir told us about NPTEL(National Programme on Technology Enhanced Learning).Basically NPTEL is a site from where we do any course in our free time. There is a number of courses available on NPTEL and the duration of courses is different different acc to the courses. The teachers teach on this site are the IIT teachers .This site provide us certificate of the course that we do on this site.A exam is conducted by NPTEL of your course if you clear that exam you will get the certificate.Sir also shows how we apply for the courses on NPTEL. The offical site of NPTEL is that  **https://nptel.ac.in/** . After that sir ended his session. I thanks sir for this important and  wonderful lecture .
 
 ![17548165567822889193273499377456](https://github.com/user-attachments/assets/82f695f7-fcdd-4362-b608-3258ba6d3250)
 
 
+### 🟩National Service Scheme (NSS)
+
+After CML Session,Dr.Jasvir Singh Grewal introduced NSS to us. Basically Dr.Jasvir Singh Grewal was the Incharge of NSS.
+Jasvir Sir told us about the NSS and told the points that why we need to join NSS .Sir tod us that just like NCC ,NSS also conducted camps. The work of NSS is to aware  people from drugs,deforestation,pollution etc.To aware people from that things students in NSS doing dramas and perform some skits. Sir also shows us the videos of previous NSS camps in which students plant trees and doing drama against drugs.After that sir playing some games with the student. At the end,Our seniors who are in NSS doing a drama infront of all students.After this the session is coming to end.I thanks Sir for this wonderful session.
