@@ -172,7 +172,9 @@ After that Lakhir sir told us about NPTEL(National Programme on Technology Enhan
 ### 🟩National Service Scheme (NSS)
 
 After CML Session,Dr.Jasvir Singh Grewal introduced NSS to us. Basically Dr.Jasvir Singh Grewal was the Incharge of NSS.
-Jasvir Sir told us about the NSS and told the points that why we need to join NSS .Sir tod us that just like NCC ,NSS also conducted camps. The work of NSS is to aware  people from drugs,deforestation,pollution etc.To aware people from that things students in NSS doing dramas and perform some skits. Sir also shows us the videos of previous NSS camps in which students plant trees and doing drama against drugs.
+Jasvir Sir told us about the NSS and told the points that why we need to join NSS .
+
+Sir told  us that just like NCC ,NSS also conducted camps. The work of NSS is to aware  people from drugs,deforestation,pollution etc.To aware people from that things students in NSS doing dramas and perform some skits. Sir also shows us the videos of previous NSS camps in which students plant trees and doing drama against drugs.
 
 After that sir playing some games with the student. At the end,Our seniors who are in NSS doing a drama infront of all students.After this the session is coming to end.I thanks Sir for this wonderful session.
 
