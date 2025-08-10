@@ -2,19 +2,19 @@
 # Pardeep Singh(Mechanical Engineering)
 # Day 1
 ## July 30,2025
-## Visiting Gurdwara Sahib 🛕🪯
+## 🟨Visiting Gurdwara Sahib 🛕🪯
 Today marked **Day 1** of the Induction Program, where all students gathered in the **Gurdwara Sahib ** that are situatedin the college. Along with the students all teaching staff also coming in Gurdwara Sahib.In Gurdwara Sahib Granthi ji  doing Ardaas for all the  students for their upcoming time.
 
 ![1754575733718222908330996454927](https://github.com/user-attachments/assets/9c1c2fde-73fe-42a7-9819-b07ab03fa072)
 
 
-## Tea And Snackes☕️🍪
+## 🟪Tea And Snackes☕️🍪
 After the Ardass at Gurdwara Sahib ,the arrangements of tea and snacks are ready for us.The venue of tea and snacks is Hostel No 2 of Boys. The arrangements of tea and snacks is very good.I personally liked that's arrangements.
 
 ![17545760573667414886134756482703](https://github.com/user-attachments/assets/de4ebeab-9923-43a1-9a7c-0d27aa1893f8)
 
 
- ## Inaugural Ceremony At Auditorium🏫
+ ## 🟧Inaugural Ceremony At Auditorium🏫
   ### After Tea And Snackes, We are going in college Auditorium for our inaugural Ceremony.__
  ## 🔶Program Host: Tranumreet Kaur
 
@@ -180,7 +180,9 @@ After that sir playing some games with the student. At the end,Our seniors who a
 <img width="400" height="400" alt="17548222973172425414086547782753" src="https://github.com/user-attachments/assets/bde1e6cd-717e-4879-836b-7743109b8dbd" />
 
 
+
+
 ⚪️After this 5th and Last Day of induction program will be ended.🔚
 
 
-## 🔴I Really Enjoyed This Induction Programe A Lot. With The Enjoyment I learned very other  importantant things about our life.
+## 🔴I Really Enjoyed This Induction Programe A Lot. With The Enjoyment I learned very other  importantant things about our life.I Thanks A Lot To Our Principal Sir And HOD Mrs Harpreet Mam For Oragnize This Kind Amazing  Induction Programe.
