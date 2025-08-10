@@ -39,7 +39,7 @@ Sir has always led the institution with **dedication, discipline, and vision**, 
 ## 👩‍🏫Mrs. Harpreet Kaur Grewal(HOD : applied science)
 
 She has well **communication skill** . She taught us about moral values and how to deal with people or students of different branches . She told us to do well in college ,make our life discipline, well managed to do better in aacdemic. 
-<img width="1204" height="916" alt="image" src="https://github.com/user-attachments/assets/b7a2cbcd-e3d6-4c1c-93c9-6ae97c4c0ef8" />
+<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/b7a2cbcd-e3d6-4c1c-93c9-6ae97c4c0ef8" />
 
 ## 🌟S. Maheshinder Singh Grewal(Chief Guest)
 
