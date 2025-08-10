@@ -164,5 +164,8 @@ After NCC session,Dr.Jasvir Singh Khana introduced CML to us. Acc to Jasvir sir 
 https://docs.google.com/forms/d/e/1FAIpQLSeo8mtSb10Z2xj68WTqEbAnw9Shj6V0z73BOSK024GTZMC9Kw/viewform
 
 
-After that jasvir sir told us about NPTEL(National Programme on Technology Enhanced Learning).Basically NPTEL is a site from where we do any course in our free time. There is a number of courses available on NPTEL and the duration of courses is different different acc to the courses. The teachers teach on this site are the IIT teachers .This site provide us certificate of the course that we do on this site.A exam is conducted by NPTEL of your course if you clear that exam you will get the certificate.Sir also shows how we apply for the courses on NPTEL. After that sir ended his session. I thanks sir for this important and  wonderful lecture .
+After that jasvir sir told us about NPTEL(National Programme on Technology Enhanced Learning).Basically NPTEL is a site from where we do any course in our free time. There is a number of courses available on NPTEL and the duration of courses is different different acc to the courses. The teachers teach on this site are the IIT teachers .This site provide us certificate of the course that we do on this site.A exam is conducted by NPTEL of your course if you clear that exam you will get the certificate.Sir also shows how we apply for the courses on NPTEL. The offical site of NPTEL is that **https://nptel.ac.in/**. After that sir ended his session. I thanks sir for this important and  wonderful lecture .
+
+![17548165567822889193273499377456](https://github.com/user-attachments/assets/82f695f7-fcdd-4362-b608-3258ba6d3250)
+
 
