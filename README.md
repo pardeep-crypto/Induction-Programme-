@@ -1,5 +1,5 @@
 # Induction Programe
-# Pardeep Singh [Mechanical Engineering (B) ]
+# Pardeep Singh [ Mechanical Engineering (B) ]
 # Day 1
 ## July 30,2025
 ## 🟨Visiting Gurdwara Sahib 🛕🪯
