@@ -156,5 +156,5 @@ In manpreeet sir lecture i notice that the questions of students is too much. It
  
 After that Tanmay invite Brigadier *PS Cheema* Sir. We welcomed sir with powerful clapping.Sir Firstly told us about his lifestory. Second,sir told us why we should necessary to join NCC. Sir conversation is 30-40 minutes long.After sir's conversation with us , Our Principal sir and HOD Mam honours PS Cheema Sir.
 
-![17548124725867822695211872738054](https://github.com/user-attachments/assets/d711188d-6c5a-49a2-81f4-0cfd0359f041)
+![17548125958083964641277329937487](https://github.com/user-attachments/assets/30d9f64c-f84f-405a-bf43-75ce43eb6fdd)
 ![17548123007638440258021298800685](https://github.com/user-attachments/assets/0fe9adf4-924e-4693-99e9-8346da9d4031)
