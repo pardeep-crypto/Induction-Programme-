@@ -15,7 +15,7 @@ After the Ardass at Gurdwara Sahib ,the arrangements of tea and snacks are ready
 
 
  ## 🟧Inaugural Ceremony At Auditorium🏫
-  ### After Tea And Snackes, We are going in college Auditorium for our inaugural Ceremony.__
+  After Tea And Snackes, We are going in college Auditorium for our inaugural Ceremony.__
  ## 🔶Program Host: Tranumreet Kaur
 
 The program began with **Tranumreet Kaur**, who took the stage with **confidence and grace**. She has a ability of well speaking and encourage the student to listen program well And her natural ability to **connect instantly with students**.
