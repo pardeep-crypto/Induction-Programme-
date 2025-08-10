@@ -159,6 +159,10 @@ After that Tanmay invite Brigadier *PS Cheema* Sir. We welcomed sir with powerfu
 ![17548125958083964641277329937487](https://github.com/user-attachments/assets/30d9f64c-f84f-405a-bf43-75ce43eb6fdd)
 
 ### 🟪Center For Multi-Faceted Learning(CML)
-After NCC session,Dr.Jasvir Singh Khana introduced CML to us. Acc to Jasvir sir basically CML is type of club which support hidden talent of students and improve community skills of students.In CML,sir and sir's team work on strength and weak points of students. Sir give a google form to the interested students for CML.https://docs.google.com/forms/d/e/1FAIpQLSeo8mtSb10Z2xj68WTqEbAnw9Shj6V0z73BOSK024GTZMC9Kw/viewform
+After NCC session,Dr.Jasvir Singh Khana introduced CML to us. Acc to Jasvir sir basically CML is type of club which support hidden talent of students and improve community skills of students.In CML,sir and sir's team work on strength and weak points of students. Sir give a google form to the interested students for CML.
 
+https://docs.google.com/forms/d/e/1FAIpQLSeo8mtSb10Z2xj68WTqEbAnw9Shj6V0z73BOSK024GTZMC9Kw/viewform
+
+
+After that jasvir sir told us about NPTEL(National Programme on Technology Enhanced Learning).Basically NPTEL is a site from where we do any course in our free time. There is a number of courses available on NPTEL and the duration of courses is different different acc to the courses. The teachers teach on this site are the IIT teachers .This site provide us certificate of the course that we do on this site.A exam is conducted by NPTEL of your course if you clear that exam you will get the certificate.Sir also shows how we apply for the courses on NPTEL. After that sir ended his session. I thanks sir for this important and  wonderful lecture .
 
