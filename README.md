@@ -150,3 +150,5 @@ Firstly he give suggestions to the students who go gym.He told him the basic exe
 
 In manpreeet sir lecture i notice that the questions of students is too much. It's basically means that the students like sir's lecture very much.After sir lecture our Principal sir and HOD Mam honours Manpreet Sir.
 
+ ### 🟨National Cadit Corps(NCC)
+ After Manpreet Sir lecture ,Our senior named Tanmay kaushal give us information information about National Cadit Corps (NCC).He told us that he is the part of NCC since two years.He told us the reason why he joined NCC.He also told us that why we need to join to NCC.He told us about the different different camps of NCC which are organised in other states and other district.He shows us the videos of NCC Camps.He also told us about the NCC officially website of this college named https://ncc.gndec.ac.in/.
