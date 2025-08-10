@@ -157,3 +157,8 @@ In manpreeet sir lecture i notice that the questions of students is too much. It
 After that Tanmay invite Brigadier *PS Cheema* Sir. We welcomed sir with powerful clapping.Sir Firstly told us about his lifestory. Second,sir told us why we should necessary to join NCC. Sir conversation is 30-40 minutes long.After sir's conversation with us , Our Principal sir and HOD Mam honours PS Cheema Sir.
 
 ![17548125958083964641277329937487](https://github.com/user-attachments/assets/30d9f64c-f84f-405a-bf43-75ce43eb6fdd)
+
+### 🟪Center For Multi-Faceted Learning(CML)
+After NCC session,Dr.Jasvir Singh Khana introduced CML to us. Acc to Jasvir sir basically CML is type of club which support hidden talent of students and improve community skills of students.In CML,sir and sir's team work on strength and weak points of students. Sir give a google form to the interested students for CML.https://docs.google.com/forms/d/e/1FAIpQLSeo8mtSb10Z2xj68WTqEbAnw9Shj6V0z73BOSK024GTZMC9Kw/viewform
+
+
